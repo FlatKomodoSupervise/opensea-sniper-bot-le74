@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with instant NFT Wash Trading Bot for opensea sniper bot | flip-strategies & wash-trading-execution. Featuring flip-strategies and
 
 
 
